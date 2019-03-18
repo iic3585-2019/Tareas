@@ -11,9 +11,9 @@
 2. Sebasthian von Bergen
 3. Andre Simon
 ## Grupo 4 ##
-1. 
-2.
-3.
+1. Mauricio Ortiz
+2. Natalia Barra
+3. Luis Chodiman
 ## Grupo 5 ##
 1. 
 2.
